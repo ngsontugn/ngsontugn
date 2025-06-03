@@ -27,5 +27,5 @@
 ---
 
 ### 🌐 Kết nối với mình:
-- 📧 Email: ngsontugn@gmail.com
+- 📧 Email: sontungnguyen894@gmail.com
 - 💼 LinkedIn: [www.linkedin.com/in/ngsontugn](https://www.linkedin.com/in/ngsontugn)
